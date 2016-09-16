@@ -4,7 +4,7 @@ So I'm writing this based on some feedback from my therapist.  Essentially I hav
 
 ## Body Language
 
-It's become super clear to me that the first thing to do to maintain a calm and collected state when stressed is maintain a body position that reinforces that.  Leaning forward, pointing, or gesturing all increase my level of agitation/aggression, that's not helpful.  Instead keeping my shoulders rolled back and my hands crossed in front of my chest go a long way to keeping my feelings under wraps.  I find it really hard to yell or bully when I keep my body like that.  So that being said, in order to stay calm *Keep my shoulders rolled back and keep mt hands crossed in front of my chest.*
+It's become super clear to me that the first thing to do to maintain a calm and collected state when stressed is maintain a body position that reinforces that.  Leaning forward, pointing, or gesturing all increase my level of agitation/aggression, that's not helpful.  Instead keeping my shoulders rolled back and my hands crossed in front of my chest go a long way to keeping my feelings under wraps.  I find it really hard to yell or bully when I keep my body like that.  So that being said, in order to stay calm **Keep my shoulders rolled back and keep my hands crossed in front of my chest.**
 
 ## Mental Exercises
 
